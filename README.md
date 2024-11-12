@@ -1,0 +1,1 @@
+# B21CS069_BTP_ischemic_stroke-_lesion
